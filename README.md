@@ -1,6 +1,6 @@
 ### ✨✨✨
-### 1. Psalm 23:1 - "YHWH is my shepherd, I shall not want."
-### 2. Genesis 1:1 - "In the beginning Elohim created the heavens and the earth."
+### 1. Psalm 23:1 - "YHWH is my Shepherd, I shall not want."
+### 2. Genesis 1:1 - "In the beginning Elohim created the Heavens and the Earth."
 ### 3. Proverbs 16:3 - "Commit your works to YHWH And your plans will be established."
-### 4. Colossians 3:23 - "Whatever you do, do your work heartily, as for the Lord rather than for men,"
+### 4. Colossians 3:23 - "Whatever you do, do your work heartily, as for The Lord rather than for men,"
 ### ✨✨✨
